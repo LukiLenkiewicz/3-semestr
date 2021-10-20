@@ -1,1 +1,1 @@
-# 3-semestr
+Pliki z 3go semestru
